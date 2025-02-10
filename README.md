@@ -1,4 +1,4 @@
-# 👋 Hey, I'm Mohammad! 🇸🇾  
+# 👋 Hey, I'm Mohammad!
 
 ## 🚀 About Me  
 💻 Passionate about coding & tech  
