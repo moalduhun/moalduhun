@@ -16,6 +16,7 @@
 
 ## 📅 Special Date  
 📌 **December 8th, 2024**  
+ **Day of Syria was free**
 
 ## 📫 Connect with Me  
 📧 Email: alduhunmohammad1@gmail.com  
